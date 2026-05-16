@@ -1,1 +1,1 @@
-# -Smart_Product_Design-Group2---
+# -智能产品设计第2组---
